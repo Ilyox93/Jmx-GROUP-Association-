@@ -12,6 +12,6 @@ Merci pour votre soutien ! ❤️
 
 ---
 
-🔧 Développeur bénévole : Rayann  
+🔧 Développeur bénévole : Ilyox  
 👨‍💻 Association : Jmx'GROUP  
-📬 Contact : contact@jmxgroup.org *(par exemple)*
+📬 Me Contacter : contact@ilyox.fr ou retrouvez moi sur https://ilyox.fr
